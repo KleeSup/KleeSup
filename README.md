@@ -25,4 +25,5 @@ Outside of work, I build indie games and I'm currently developing my own game en
 ## More
 
 Want the full story? Check out my LinkedIn:
+
 👉 https://www.linkedin.com/in/benjamin-leidolph-823a3b294/
